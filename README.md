@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://geovanilopes.github.io/resume/](https://geovanilopes.github.io/resume/)
 
-- ⚡ Fun fact **I was Police Officer on Brasil for 09 years, now I'm restating my life in Canada!**
+- ⚡ Fun fact **I was Police Officer on Brasil for 09 years, now I'm restarting my life in Canada!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
